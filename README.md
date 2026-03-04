@@ -4,11 +4,3 @@
 
   ㅤㅤㅤㅤㅤ
                    ㅤThe Knighted.        
-
-OCS YOU MAY SEE ME AS :
-
-Astra ; Zolaris Sirius.
-
-Phasnair ; Alien Species Oc.
-
-Primrose Sirius ; Oc.
