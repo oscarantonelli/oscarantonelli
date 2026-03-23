@@ -13,3 +13,5 @@ Previously had my github as geoscarr, Decided to rebrand to a Kimi Antonelli Git
 DNI Irl's ( Meaning you have a delusional attachment to a character )
 
 I can come off as Rude. I do not mean to.
+
+other drivers im a fan of > george russell, liam lawson, lewis hamilton
