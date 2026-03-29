@@ -1,7 +1,5 @@
 
-<img width="736" height="981" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/9afda586-5c8d-4db4-b5d0-3947e9d623d5" />
-
-  
+<img width="736" height="981" alt="Untitled163_20260319001939" src="https://github.com/user-attachments/assets/b562ab74-b32d-46a4-a858-9947b3054977" />
   
   ![](https://komarev.com/ghpvc/?username=ELLERN4TE&color=000000&label=Wins.&style=for-the-badge)
 
@@ -14,7 +12,7 @@ DNI Irl's ( Meaning you have a delusional attachment to a character )
 
 I can come off as Rude. I do not mean to.
 
-other drivers im a fan of > george russell, liam lawson, lewis hamilton
+other drivers im a fan of > oliver bearman, lewis hamilton
 
 yes i ignore whispers about my tier 4 unless its a friend or a friend of a friend
 
